@@ -15,5 +15,4 @@ Excel · Data visualization  · Communicating findings
 
 ## Contact
 www.linkedin.com/in/
-geraldine-muyumba-51770b278
 aldinamuyumba6@gmail.com
